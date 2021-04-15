@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I like activities that involve **problem solving** and **learning new things**. However, who _doesn't_ like to relax a bit, for a change? 🐺
